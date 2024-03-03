@@ -1,0 +1,1 @@
+Ko'chirma o'lasan
